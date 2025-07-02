@@ -1,1 +1,1 @@
-Lashe-na-pratica
+Lashe-na-pratica 
